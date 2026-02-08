@@ -5,3 +5,8 @@
 
 
 OYNANIŞ VE İNCELEME VİDEOSU:   https://youtu.be/XSUBDjlQ0T8?si=9BKGgyuZ05w7-8DD  
+
+
+
+
+
